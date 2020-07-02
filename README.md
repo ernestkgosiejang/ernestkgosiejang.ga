@@ -1,2 +1,2 @@
-# ernestkgosiejang.github.io
+# ernestkgosiejang
 <h1> SBWL LIFESTYLE </h1>
